@@ -1,2 +1,2 @@
-# scoktw.com
-# scoktw.com
+# https://deepnudearts.github.io/
+# https://deepnudearts.github.io/
